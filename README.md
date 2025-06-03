@@ -1,1 +1,0 @@
-# Agrinho_LucasKenji2025
